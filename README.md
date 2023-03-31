@@ -6,7 +6,7 @@
 
 - 🔥 Web Developer & High-minded to start programming 
 
-- 🔭 I’m currently working at ...
+- 🔭 I’m currently working at a Super Market on dev
 
 - ▶️ I'm working to post videos (one day) on [youtube.com/gabriellucas](https://www.youtube.com/channel/UCUcP14p4OtNIW_oEhu8Yxdg)
 
